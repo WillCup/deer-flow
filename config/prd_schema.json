@@ -1,0 +1,1 @@
+# Full content prepared previously
